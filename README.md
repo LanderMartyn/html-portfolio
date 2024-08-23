@@ -1,2 +1,2 @@
 # html-portfolio
-i a damn project leave me dafuq alone
+is a damn project leave me dafuq alone
